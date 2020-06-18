@@ -1,3 +1,0 @@
-Training is not yet done on these codes..
-
-Waiting for a PC to train in...
